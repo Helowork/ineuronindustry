@@ -1,2 +1,2 @@
-## This is the git tutorials by Hansraj
+## This is the git ammazing  tutorials by Hansraj
 ## We Will learn gitfgdgfgfgf
